@@ -1,2 +1,0 @@
-# oxy
-yolo suivez moi
